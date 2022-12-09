@@ -2,7 +2,7 @@
 - 👀 I’m interested in customer experience, success, stocks, doggos, financial freedom, wellbeing, festivals, meditation, traveling, food, and experiences
 - 🌱 I’m currently learning how to produce melodic techno music, go to market functions, and program lighting sequences
 - 💞️ I’m looking to collaborate, networking is essential!
-= 💪 Here to shepherd customer outcomes, kick butt, and eat cookies .. 😲 I am out of cookies
+- 💪 Here to shepherd customer outcomes, kick butt, and eat cookies .. 😲 I am out of cookies
 - 📫 How to reach me https://www.linkedin.com/in/ian-cee/
 -
 <!---
